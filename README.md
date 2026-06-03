@@ -1,1 +1,1 @@
-# SheetalPrusty_ML_Inteenship_2026
+# SheetalPrusty_ML_Internship_2026
